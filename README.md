@@ -1,3 +1,3 @@
 Sejam bem-vindos ao meu perfil 💋
 
- Meu nome é Jubiane mas me chamam de Baiana 💖
+ Meu nome é Jubiane sou aluna no alura
