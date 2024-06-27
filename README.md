@@ -1,3 +1,9 @@
-Sejam bem-vindos ao meu perfil 💋
 
- Meu nome é Jubiane sou aluna no alura
+Boas vindas ao meu perfil 💙💙
+Meu nome é Jubiane Souza
+
+Estou estudando na Alura
+Estou me desenvolvendo na linguagem JavaScript
+Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+Você pode entrar em contato comigo 📫
+00001107995036sp@al.educacao.sp.gov.br
